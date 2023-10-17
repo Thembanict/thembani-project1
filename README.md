@@ -1,2 +1,0 @@
-# thembani-project
- 
